@@ -126,7 +126,7 @@ Yes. A $5/month fee applies after **12 months of inactivity**.
 
 Austin Pips is making a name in the online trading industry with its robust platform and wide asset selection. While it may lack some elements of long-established brokers, it’s certainly **not a scam** based on current evidence.
 
-> ⚠️ *Note: Always do your due diligence and never invest money you can't afford to lose.*
+>  *While WikiFX may offer insights into the world of online trading, it’s imperative to approach its ratings with a degree of skepticism. The allegations against WikiFX, coupled with its lack of regulatory standing, highlight the need for traders to diversify their sources and cross-reference reviews from multiple reputable platforms. In the end, a well-informed decision requires thorough research and a comprehensive understanding of a broker’s standing in the market.*
 
 ---
 
